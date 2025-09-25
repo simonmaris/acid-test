@@ -2,7 +2,7 @@
 
 > *An experimental presentation exploring the intersection of consciousness-expanding creativity and artificial intelligence*
 
-**Presented at [Transform 2025](https://kind-lab.de/transform2025/schedule/25/) by David Weigend**
+**Brilliantly presented at [Transform 2025](https://kind-lab.de/transform2025/schedule/25/) by David Weigend**
 
 ---
 
